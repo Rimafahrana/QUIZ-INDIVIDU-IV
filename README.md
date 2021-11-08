@@ -1,1 +1,0 @@
-# QUIZ-INDIVIDU-IV
